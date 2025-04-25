@@ -523,4 +523,167 @@
 
 ---
 
+## 🫓 Pupusa (Salvádor)
+**Suroviny na 4 porcie:**
+- 300 g masa harina (kukuričná múka)
+- 200 ml vody
+- 1 ČL soli
+- 200 g červených fazúľ (varených)
+- 150 g syra (quesillo alebo mozzarella)
+- 1 PL oleja
+- 200 g kapusty
+- 1 mrkva
+- 1 cibuľa
+- 2 PL octu
+- 1 ČL cukru
+- 2 paradajky
+- 1 strúčik cesnaku
+- soľ, korenie
+
+**Postup:**
+1. Fazuľu rozmixuj na pastu, syr nastrúhaj, zmiešaj.
+2. Cesto: masa harina, voda, soľ – vypracuj vláčne cesto.
+3. Z cesta odober guľky, sploš, naplň fazuľovo-syrovou zmesou, uzavri a opäť sploš.
+4. Opekaj nasucho na panvici 2–3 min z každej strany.
+5. Kapustu, mrkvu, cibuľu nastrúhaj, premiešaj s octom, cukrom, soľou – nechaj odležať (curtido).
+6. Paradajky, cesnak, soľ, korenie rozmixuj na salsu.
+7. Podávaj pupusy s curtido a salsou.
+
+---
+
+## 🥔 Papa rellena (Peru)
+**Suroviny na 4 porcie:**
+- 600 g zemiakov
+- 1 vajce
+- 200 g mletého hovädzieho
+- 1 cibuľa
+- 1 ČL kmínu
+- 1 ČL oregana
+- 1 ČL sladkej papriky
+- 30 g olív
+- 30 g hrozienok
+- 1 vajce natvrdo
+- 2 PL hladkej múky
+- soľ, korenie
+- olej na vyprážanie
+- 1 červená cibuľa
+- 2 paradajky
+- 1 limetka
+- koriander
+
+**Postup:**
+1. Zemiaky uvar, popuč, nechaj vychladnúť, pridaj vajce, soľ, korenie.
+2. Plnka: mäso, cibuľa, kmín, oregano, paprika – opraž, pridaj olivy, hrozienka, vajce natvrdo.
+3. Zemiakovú hmotu sploš, naplň plnkou, uzavri do oválu.
+4. Obal v múke a rozšľahanom vajci.
+5. Vyprážaj v oleji dozlata.
+6. Salsa criolla: cibuľa, paradajky, limetka, koriander – premiešaj.
+7. Podávaj salsou k papa rellena.
+
+---
+
+## 🍗 Coxinha (Brazília)
+**Suroviny na 4 porcie:**
+- 300 g kuracích pŕs
+- 1 cibuľa
+- 1 strúčik cesnaku
+- 100 g smotanového syra
+- 300 ml kuracieho vývaru
+- 200 ml mlieka
+- 50 g masla
+- 300 g hladkej múky
+- 2 vajcia
+- 100 g strúhanky
+- soľ, korenie, petržlen
+- olej na vyprážanie
+
+**Postup:**
+1. Kuracie prsia uvar, natrhaj na vlákna, premiešaj s opraženou cibuľou, cesnakom, syrom, petržlenom, soľou, korením.
+2. Vývar, mlieko, maslo priveď do varu, vsyp múku, miešaj do hustého cesta.
+3. Cesto nechaj vychladnúť, odober kúsky, sploš, naplň kuracou zmesou, uzavri do tvaru slzy.
+4. Obal vo vajci a strúhanke.
+5. Vyprážaj v oleji dozlata.
+6. Podávaj s majonézovým dipom.
+
+---
+
+## 🥟 Jamaická fašírka (Jamajka)
+**Suroviny na 4 porcie:**
+- 300 g hladkej múky
+- 100 g masla
+- 50 g rastlinného tuku
+- 1 ČL soli
+- 1 ČL kurkumy
+- 100 ml ľadovej vody
+- 300 g mletého hovädzieho
+- 1 cibuľa
+- 1 strúčik cesnaku
+- 1 chilli paprička
+- 1 ČL karí korenia
+- 1 ČL tymianu
+- 1 ČL nového korenia
+- 30 g strúhanky
+- soľ, korenie
+- 1 vajce na potretie
+
+**Postup:**
+1. Cesto: múka, maslo, tuk, soľ, kurkuma, voda – vypracuj, nechaj 30 min odpočívať.
+2. Plnka: mäso, cibuľa, cesnak, chilli, koreniny – opraž, pridaj strúhanku, soľ, korenie.
+3. Cesto vyvaľkaj, vykroj kruhy, naplň plnkou, uzavri do polmesiaca.
+4. Potri vajcom, peč 20 min na 190°C.
+5. Podávaj s mangovým čatní.
+
+---
+
+## 🥟 Kimchi pirohy (Kórea/Slovensko fusion)
+**Suroviny na 4 porcie:**
+- 300 g hladkej múky
+- 150 g zemiakov
+- 1 vajce (voliteľné)
+- 1 ČL soli
+- 200 g kimchi
+- 100 g tofu
+- 1 PL sezamového oleja
+- 2 jarné cibuľky
+- 100 ml sójového jogurtu
+- 1 PL gochujangu
+- soľ, korenie
+
+**Postup:**
+1. Zemiaky uvar, popuč, zmiešaj s múkou, vajcom, soľou – vypracuj cesto.
+2. Kimchi nasekaj, tofu rozmrvi, premiešaj so sezamovým olejom, cibuľkou, soľou, korením.
+3. Cesto vyvaľkaj, vykroj kolieska, naplň kimchi plnkou, uzavri.
+4. Varte vo vriacej vode, potom krátko opeč na panvici.
+5. Omáčka: jogurt, gochujang – premiešaj.
+6. Podávaj pirohy s omáčkou a sezamom.
+
+---
+
+## 🥟 Tandoori momo (Indicko-nepálska fusion)
+**Suroviny na 4 porcie:**
+- 300 g hladkej múky
+- 150 ml vody
+- 1 ČL soli
+- 200 g mletého kuracieho
+- 1 cibuľa
+- 1 PL koriandra
+- 1 ČL garam masala
+- 1 ČL zázvoru
+- 100 g bieleho jogurtu
+- 1 ČL čili
+- 1 ČL citrónovej šťavy
+- 1 PL oleja
+- soľ, korenie
+- čerstvá mäta
+
+**Postup:**
+1. Cesto: múka, voda, soľ – vypracuj, nechaj 30 min odpočívať.
+2. Plnka: mäso, cibuľa, koriander, garam masala, zázvor, soľ, korenie – premiešaj.
+3. Cesto vyvaľkaj, vykroj kolieska, naplň, uzavri do batôžkov.
+4. Par 10 minút, nechaj vychladnúť.
+5. Marináda: jogurt, čili, citrón, olej – premiešaj, obal momo, peč/griluj 10–15 min na 220°C.
+6. Podávaj s mätovým jogurtovým dipom.
+
+---
+
 *Pokračuj podľa tejto štruktúry pre ďalšie recepty. Každý recept má emoji, presné množstvá a detailný postup.* 
